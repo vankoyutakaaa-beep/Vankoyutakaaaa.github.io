@@ -1,3 +1,1 @@
-# Vankoyutakaaaa.github.io
-Adadeh
-proxy
+# Vankoyutakaaa-beep.github.io
